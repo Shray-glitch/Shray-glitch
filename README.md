@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **st.shray200130@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1yBb86A90t0Rp-3LLro9m46z_SBlRROFp/view?usp=sharing](https://drive.google.com/file/d/1yBb86A90t0Rp-3LLro9m46z_SBlRROFp/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1yBb86A90t0Rp-3LLro9m46z_SBlRROFp/view?usp=sharing](resume)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
